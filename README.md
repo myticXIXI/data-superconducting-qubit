@@ -1,0 +1,1 @@
+the numerical data for paper:Sudden change of the geometric quantum discord and quantum coherence in dissipative superconducting circuit systems with the time-dependent electromagnetic field. Based on Springer's journal requirements, we uploaded this data to guarantee the authenticity of the article.
